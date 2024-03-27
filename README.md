@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JenishaAngelB
+- 👀 I’m interested in DATA SCIENCE
+- 🌱 I’m currently learning B.TECH AI&DS
+- 📫 How to reach me : jenisha2028@gmail.com
+- ⚡ Fun fact : Always Ready to Learn new things!
